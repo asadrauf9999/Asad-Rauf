@@ -1,2 +1,3 @@
 # Asad-Rauf
-i am a very good engineer and i want to do something Pakistan new technology 
+i want to do something for Pakistan. 
+i want to be a great engineer.
